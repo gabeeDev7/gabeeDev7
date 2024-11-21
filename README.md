@@ -28,8 +28,8 @@ Meu objetivo é criar soluções tecnológicas que impactem positivamente o mund
 
 ## 📫 Como me encontrar:
 
-- 🌐 **[Meu LinkedIn](/)**  
-- 📧 **Contato:**
+- 🌐 **[Gabriel Rodrigues](https://www.linkedin.com/in/gabriel-rodrigues-25b2442b5/)**  
+- 📧 **Contato: gabrielrodriguesdeoliveira109@gmail.com**
 
 ---
 
